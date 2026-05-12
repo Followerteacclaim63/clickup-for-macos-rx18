@@ -1,4 +1,4 @@
-#  
+#  best Script for ClickUp for macOS - note encryption and goal tracking offers the most advanced ClickUp for macOS script, with note encryption and goal tracking. Ideal for
 
 
 
